@@ -1,4 +1,4 @@
-## Hi there 👋
+
 
 <a href="https://lesson2.guru" rel="nofollow">
   <img src="https://camo.githubusercontent.com/9a672f639250395a2b3ce130853a5715bdada9eab6204da1091ae676fd5c2479/68747470733a2f2f6c6573736f6e322e677572752f75706c6f6164732f363766376265663838643436352d726574726f2d626f776c2e706e67" width="150" data-canonical-src="https://lesson2.guru/uploads/67f7bef88d465-retro-bowl.png" style="max-width: 100%;">
@@ -52,4 +52,4 @@ Unblocked Games 76 offers a great solution for those who want quick access to fu
 
 Whether you’re looking for a mental break or a way to unwind, Unblocked Games 76 is a virtual playground waiting to be explored.
 
-<h1>unblocked games</h1>
+<h1>unblocked games 76</h1>
